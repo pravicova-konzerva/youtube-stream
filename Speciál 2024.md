@@ -1,7 +1,6 @@
 ## Co nám dalo 2024
 
-[V USA vyhrál Donald Trump prezidentské volby, což byl historický moment, 
-protože se stal prvním prezidentem po 132 letech, který byl zvolen na druhý](https://www.seznamzpravy.cz/clanek/volby-usa-donald-trump-je-na-prahu-druheho-prezidenstvi-263888)
+[V USA vyhrál Donald Trump prezidentské volby, což byl historický moment, protože se stal prvním prezidentem po 132 letech, který byl zvolen na druhý](https://www.seznamzpravy.cz/clanek/volby-usa-donald-trump-je-na-prahu-druheho-prezidenstvi-263888)
 
 [Válka na Ukrajině](https://www.novinky.cz/clanek/valka-na-ukrajine-skepse-z-usa-ukrajina-prijde-o-vsechno-dobyte-uzemi-v-kurske-oblasti-do-nekolika-mesicu-40502459)
 
