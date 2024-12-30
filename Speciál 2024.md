@@ -46,13 +46,7 @@
 
 [Superman](https://www.youtube.com/watch?v=uhUht6vAsMY)
 
-[Jurassic World: Rebirth](https://www.youtube.com/watch?v=BfizeB6dQi4)
-
-[Zootopia 2](https://www.youtube.com/watch?v=ffSAzc6oy10)
-
 [Reacher Season 3](https://www.youtube.com/watch?v=iOjzqawTPus)
-
-[Stranger Things Season 5](https://www.youtube.com/watch?v=pMRePAxn1-I)
 
 [The Last of Us Season 2](https://www.youtube.com/watch?v=ibTVVAVA0mo)
 
