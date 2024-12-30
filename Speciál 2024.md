@@ -42,7 +42,7 @@
 
 [Mission: Impossible – The Final Reckoning](https://www.youtube.com/watch?v=NOhDyUmT9z0)
 
-[Captain America: Brave New Worldh](ttps://www.youtube.com/watch?v=1pHDWnXmK7Y)
+[Captain America: Brave New World](https://www.youtube.com/watch?v=1pHDWnXmK7Y)
 
 [Superman](https://www.youtube.com/watch?v=uhUht6vAsMY)
 
